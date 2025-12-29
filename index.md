@@ -30,4 +30,4 @@ Rahtak is not directed toward children under the age of 13.
 We may update this Privacy Policy from time to time. Changes will be reflected on this page.
 
 ## Contact Us
-Email: support@rahtak.com
+Email: rahtak.team@gmail.com
